@@ -46,11 +46,6 @@ Trade with **1000x leverage** & **₹0 brokerage**
 
 ---
 
-## ⚠️ Disclaimer
-
-This platform is for educational purposes only. Trading involves high risk.
-Dabba trading is not regulated under SEBI.
-
 ---
 
 🔥 Join 50,000+ Traders & Scale Your Account Today!
